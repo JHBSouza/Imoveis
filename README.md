@@ -3,7 +3,7 @@
 
 Integrants of Group:  </b>
 
-Beatriz Mendonça de Oliveira - RM83214<br> Bruno Almeida - RM82970 <br> Carlos César Rodrigues Vieira Junior - RM82455 <br> Juan Henrique Batista Souza- RM82073 <br> Matheus Cavalcanti Palermo - RM83072 <br> Nadezhda Andrushchenko - RM81830 <br> Victor Muchon Gindro - RM76413   
+Beatriz Mendonça de Oliveira - RM83214<br> Bruno Almeida - RM82970 <br> Carlos César Rodrigues Vieira Junior - RM82455 <br> Juan Henrique Batista Souza- RM82073 <br> Matheus Cavalcanti Palermo - RM83072 <br> Nadezhda Andrushchenko - RM81830 <br>    
 
 -----------------------  
 
